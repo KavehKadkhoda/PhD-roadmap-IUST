@@ -8,7 +8,6 @@ Second semester: 2 core courses
 Third semester: qualifier exams
 
 Fourth semester: Research Proposal
-
 Problem Statement
 Why does this research study need to be conducted?
 What specific issues does this study raise that have not been observed in other literature pertaining to the topic?
