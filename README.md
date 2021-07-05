@@ -13,9 +13,9 @@ Problem Statement:
 Why does this research study need to be conducted?
 What specific issues does this study raise that have not been observed in other literature pertaining to the topic?
 
-Fifth and sixth semesters: seminar 1
+Fifth and Sixth semesters: seminar 1
 
-Seventh and eighth semesters: seminar 2
+Seventh and Eighth semesters: seminar 2
 
 From the Ninth semester onwards: If you have TWO published papers, you can defend your THESIS (pre-defence and defence).
 
